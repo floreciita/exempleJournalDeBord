@@ -16,7 +16,7 @@ Below The Belt m'interpelle puisque c'est un film qui cherche à conscientiser l
 Nova lumina est un projet similaire à l'écho des origines, par contre ce circuit interactif se trouve dans une forêt gaspesienne. Cette promenade nocturne a une distance de 2 km. Ce que j'aime de Nova lumina c'est la présentation de la dualité entre la nature et la technologie. Nova lumina contribue avec ma démarche artistique, car on peut incorporer deux éléments différents lors de la création des oeuvres multimédias.
 
 ### [LE POTAGER DES VISIONNAIRES](https://www.atomic3.ca/projet.php?id=3)
-Expliquer pourquoi vous avez choisi ce lien. 
+Le potager des visionnaires est une installation créée en 2008 par Atomic3. Le lieu de l'installation était le Musée de la Civilisation. L'installation comporte la scénographie, design horticole, conception sonore, vidéographie et mise en lumières. Le potager des visionnaires inspirera ma démarche artistique en sachant que les oeuvres multimédias sont créés pour que les spectateurs puissent les admirer.
 
 ### [Un monde adorable et magnifique, né des ténèbres ](https://www.teamlab.art/fr/ew/whatloving-dark_barcelona/caixaforum_barcelona/)
 Expliquer pourquoi vous avez choisi ce lien. 
