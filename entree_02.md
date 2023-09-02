@@ -19,5 +19,4 @@ Nova lumina est un projet similaire à l'écho des origines, par contre ce circu
 Le potager des visionnaires est une installation créée en 2008 par Atomic3. Le lieu de l'installation était le Musée de la Civilisation. L'installation comporte la scénographie, design horticole, conception sonore, vidéographie et mise en lumières. Le potager des visionnaires inspirera ma démarche artistique en sachant que les oeuvres multimédias sont créés pour que les spectateurs puissent les admirer.
 
 ### [Un monde adorable et magnifique, né des ténèbres ](https://www.teamlab.art/fr/ew/whatloving-dark_barcelona/caixaforum_barcelona/)
-Expliquer pourquoi vous avez choisi ce lien. 
-
+Un monde adorable et magnifique, né des ténèbres, est similaire aux oeuvres précédant en termes de la dualité entre la nature et la technologie, par contre cette installation qui est interactive vient représenter la nature. Cependant, il n'y a pas d'éléments de la nature dans cet oeuvre multimédia. Un monde adorable et magnifique, né des ténèbres, contribue à ma démarche artistique, car nous pouvons faire différentes émotions aux spectateurs avec des oeuvres multimédias.
