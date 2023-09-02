@@ -12,8 +12,8 @@ Below The Belt m'interpelle puisque c'est un film qui cherche à conscientiser l
 ### [L’écho des origines](https://halo.team/projects/lecho-des-origines/)
  L’écho des origines est un circuit interactif dans la foret Mont-Bénilde. Ce projet multimédia est créé par Halo Création. La durée du circuit est environ 70 à 90 minutes. La distance du circuit est 1.8 km. Tout au long, de cette promenade, les gens vont pouvoir interagir avec les dispositifs multimédias. L'écho des origines me fait constater le budget et le travail laborieux que les oeuvres multimédias nécessitent. En regard avec ma démarche artistique, cela me familiarise avec le processus de création des oeuvres multimédias.
 
-### [MOMENTS DE GRÂCE](https://numa.media/moments-de-grace/) 
-Expliquer pourquoi vous avez choisi ce lien.  
+### [Nova lumina](https://numa.media/moments-de-grace/) 
+Nova lumina est un projet similaire à l'écho des origines, par contre ce circuit interactif se trouve dans une foret gaspesienne. Cette promenade nocturne a une distance de 2 km. Ce que j'aime de Nova lumina c'est la présentation de la dualité entre la nature et la technologie. Nova lumina contribue avec ma démarche artistique, car on peut incorporer deux éléments différents lors de la création des oeuvres multimédias.
 
 ### [LE POTAGER DES VISIONNAIRES](https://www.atomic3.ca/projet.php?id=3)
 Expliquer pourquoi vous avez choisi ce lien. 
