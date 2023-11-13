@@ -5,7 +5,7 @@
 Les deux points forts de ma présentation sont le respect du temps et la qualité fonctionnelle.
 
 ### Points à améliorer
-Les deux points à améliorer de ma présentation sont les transitions/animations et lisibilité/quantité d’information.Pour les prochaines présentations,il faudrait que j'incorpore des transitions et des animations.De plus,je vais faire plus de diapositives pour éviter la surchage d'information sur une diapositive.
+Les deux points à améliorer de ma présentation sont les transitions/animations et lisibilité/quantité d’informations.Pour les prochaines présentations,il faudrait que j'incorpore des transitions et des animations.De plus,je vais faire plus de diapositives pour éviter la surchage d'information sur une diapositive.
 
 ### Gestion du temps
 J'ai respecter le temps de la durée de la présentation.
