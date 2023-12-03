@@ -1,16 +1,18 @@
 # Entrée 7
-## Analyse critique d'une oeuvre
 
-L’objectif de cet exercice est de développer une opinion sur une œuvre multimédia. Pour l’analyse, choisissez l’une des œuvres que nous avons visitées. 
+## Analyse critique de la conférence
 
-Entre 300 et 400 mots. 
+L’objectif de cet exercice est de développer une opinion sur la conférence que nous avons eu en classe. 
 
-### Description
-Décrivez l'oeuvre. Quelles étaient les composantes de l'installation? Comment était-elle réalisée techniquement? 
+### Description (Entre 4 et 6 lignes)
+Comment avez-vous trouvez la conférence? Vous a-t-elle plu? Ou pas du tout? Pourquoi? Est-ce que certains aspects vous ont plus touchés que d'autres? Est-ce que la conférence vous a été utile?
 
-### Opinion
-Donnez votre opinion sur l'oeuvre que nous avons visitée. Vous a-t-elle plu? Ou pas du tout? Pourquoi? Est-ce que certains aspects vous ont plus touchés que d'autres? 
+### Clarté de la conférence (Entre 1 et 2 lignes)
+Comment avez-vous trouvé la clarté de la conférence? Est-ce que les idées étaient claires et concise?
 
-### Analyse critique
-Qu'est-ce qui pourrait être modifié dans cette oeuvre? 
+### Structure de la conférence (Entre 1 et 2 lignes)
+Comment avez-vous trouvé la clarté de la conférence? Est-ce que le développement était logique?
+
+### Qualité visuelle (Entre 1 et 2 lignes)
+Comment avez-vous trouvé la qualité visuelle de la conférence?Est-ce que l'esthétisme était de qualité?
 
