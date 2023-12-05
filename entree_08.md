@@ -11,7 +11,7 @@ Une expérience exceptionelle vous attend!
 ![image](https://github.com/floreciita/exempleJournalDeBord/assets/112108220/7245853d-7021-4b7f-99dd-f9e41accc75c)
 ![image](https://github.com/floreciita/exempleJournalDeBord/assets/112108220/371e9189-fd60-4b87-83b6-c7a27cbf159b)
 
-![sons](https://www.youtube.com/watch?v=ozb32hgHdo4&ab_channel=Tunetank%3AFreeMusicforContentCreators)
+https://www.youtube.com/watch?v=ozb32hgHdo4&ab_channel=Tunetank%3AFreeMusicforContentCreators
 
 ### Technologies
 Dans notre projet, il y aura de la réalité virtuelle Vr et Ar. Il y aura aussi l'aspect sonore et visuel. Des costumes et accessoires seront fournis.
